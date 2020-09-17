@@ -1,1 +1,1 @@
-# Partner_Training_Webinar_202009
+# Korea Partner Training Webinar_202009
